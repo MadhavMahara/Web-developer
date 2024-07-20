@@ -1,2 +1,2 @@
 # Web-developer
-I am web-site and graphics desginer
+I am web developer and graphics desginer. 
